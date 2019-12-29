@@ -29,7 +29,7 @@
 	
 	這是下面論區的討論結果，歡迎引用.... 
 	RoboTW 機器人討論區   https://www.facebook.com/groups/540271770146161/
-	allen54a0@gmaol.com
+	allen54a0@gmail.com
 	
 */
 
